@@ -1,1 +1,1 @@
-# star-oganics
+# star-organics
